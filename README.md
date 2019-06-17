@@ -6,7 +6,7 @@ The only thing that's appealing in all this is the portrayal of deep competence 
  
 ---
  
-Max Barry writes, "The story of Babel isn't about hubris. It's about language" (Part 3, Chapter Three, p. 275). That's a misreading. If you read the full nine verses of Genesis 11, it is clear that God's goal is to disrupt the building of the city and the tower, which He regards as arrogant.
+Max Barry writes, "The story of Babel isn't about hubris. It's about language" (Part 3, Chapter Three, p. 275). That's a misreading. If you read the full nine verses of Genesis 11, it is clear that God's goal is to disrupt the building of the city and the tower, which He regards as arrogant. By omitting verse 11:4, Barry is trying to force his interpretation on the text.
  
 The Biblical story has Akkadian antecedents involving ritual surrounding the construction of Babylon's temple Esagila ("the structure with up-raised head;" cf. Babel's "tower with its top in the sky"). Of course the tower and its disruption are the key focus of the Genesis story. Ramifying language is merely how God achieves that disruption.
  
