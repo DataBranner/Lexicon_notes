@@ -10,7 +10,7 @@ Max Barry writes, "The story of Babel isn't about hubris. It's about language" (
  
 The Biblical story has Akkadian antecedents involving ritual surrounding the construction of Babylon's temple Esagila ("the structure with up-raised head;" cf. Babel's "tower with its top in the sky"). Of course the tower and its disruption are the key focus of the Genesis story. Ramifying language is merely how God achieves that disruption.
  
-I can imagine that Barry's view of the story as being "about language" may owe something to his reading Australian dream-time myth. The example he gives of Minnawara and the origin of the kangaroo (Part 2, Chapter Four, p. 193) is also not just an "origin of" story but a lesson about stubbornness. It's common for origin stories to include a moral element beyond merely describing where something comes from — not only where but why.
+I can imagine that Barry's view of the story as being "about language" may owe something to his reading of Australian dream-time myth. The example he gives of Minnawara and the origin of the kangaroo (Part 2, Chapter Four, p. 193) is also not just an "origin of" story but a lesson about the harm stubbornness does to the community. It's common for origin stories to include a moral element beyond merely describing where something comes from — not only where but why.
  
 ---
  
