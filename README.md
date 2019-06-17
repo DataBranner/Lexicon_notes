@@ -18,6 +18,6 @@ I am glad I read the book; I would not have done so without the pressure of the 
  
 But although I enjoyed reading the book, what I enjoyed most was finishing it — about a third of the way through I decided I didn't actually like the story, but I felt good about persisting until I finished it.
  
-I dislike stories that rely on black magic for deus ex machina effects. There is only one kind of black magic in the world: the very notion that black magic exists at all. Once you introduce it, your two main options are to show it triumphant or to show it failing through the arrogance of its practitioners.
+I dislike stories that rely on black magic for their effects. There is only one kind of black magic in the world: the very notion that black magic exists at all. Once you introduce it, your two main options are to show it triumphant or to show it failing through the arrogance of its practitioners.
  
 [end]
